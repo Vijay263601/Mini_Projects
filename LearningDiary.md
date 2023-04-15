@@ -14,3 +14,10 @@ Continued Mini-Project Singh's Digital's Website
 # 08/04/2023
 
 Completed Singh's Digital's Website
+
+
+# 10/04/2023
+ 
+ Started Vijay Schools & Education Website
+
+ 
